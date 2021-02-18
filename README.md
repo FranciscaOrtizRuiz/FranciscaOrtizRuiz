@@ -7,8 +7,8 @@
 
 📫 How to reach me: franortizruiz@gmail.com 
 
-Follow me on [Twitter](https://twitter.com/FranciscaOrtizR)!
+🌻 Follow me on [Twitter](https://twitter.com/FranciscaOrtizR)!
 
-👩🏿‍💻 publications: [Academia.edu](https://manchester.academia.edu/FranciscaOrtiz), [ResearchGate](https://www.researchgate.net/profile/Francisca_Ortiz_Ruiz), [ORCID](https://orcid.org/0000-0001-8538-4688), [UoM Profile](https://www.research.manchester.ac.uk/portal/en/researchers/francisca-ortiz(5417b375-6656-49e5-aacf-084dd8ba1141).html). 
+👩🏿‍💻 My publications: [Academia.edu](https://manchester.academia.edu/FranciscaOrtiz), [ResearchGate](https://www.researchgate.net/profile/Francisca_Ortiz_Ruiz), [ORCID](https://orcid.org/0000-0001-8538-4688), [UoM Profile](https://www.research.manchester.ac.uk/portal/en/researchers/francisca-ortiz(5417b375-6656-49e5-aacf-084dd8ba1141).html). 
 
 Also, I have a [Podcast about social network analysis](https://knittingnetworks.com)! Its called Knitting Networks with chapters in Spanish and English, and it is hosted by [Alejandro Espinosa-Rada](https://www.research.manchester.ac.uk/portal/alejandro.espinosa.html) and myself.
