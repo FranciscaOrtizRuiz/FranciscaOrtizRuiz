@@ -3,7 +3,7 @@
 🌱 Pronouns: She/her
 💬 Languages: Spanish - English 🌻 Follow me on [Twitter](https://twitter.com/FranciscaOrtizR)!
 
-🔭 I am **currently doing my PhD in the Department of Sociology at the Mitchell Centre for Social Network Analysis, The University of Manchester, UK**. More specifically, I'm interested on **personal networks, social gerontology, social support, and mixed methods**. I'm always open to new colaborations and ideas! 
+🔭 Currently, I am a **posdoctoral researcher at the Millennium Institute for Caregiving Research MICARE**. I am did my PhD at the Department of Sociology at the Mitchell Centre for Social Network Analysis, The University of Manchester, UK. More specifically, I'm interested on **personal networks, social gerontology, and mixed methods**. I'm always open to new colaborations and ideas! 
 
 📫 How to reach me: franortizruiz@gmail.com 
 
